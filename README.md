@@ -1,1 +1,1 @@
-# edric.github.io
+# edrickoko.github.io
